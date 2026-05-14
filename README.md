@@ -133,6 +133,10 @@
 
 
 
+-✧ Hi Yuki. You're a really nice person to be around and i'm glad you forgave me and we are friends again. I also hope we don't have ant situations again٫ your important too. You're kind even if we don't speak much anymore. ^-^
+
+[ɢɪᴛʜᴜʙ !](https://github.com/L0ST-UMBRELLA)
+
 
 𝑻𝒉𝒊𝒔 𝒇𝒐𝒏𝒕 = 𝒔𝒑𝒆𝒄𝒊𝒂𝒍 𝒑𝒆𝒐𝒑𝒍𝒆
 
