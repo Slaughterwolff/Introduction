@@ -13,7 +13,8 @@
 
 
 
-![IMG_2248](https://github.com/user-attachments/assets/6949ff89-3041-44b2-a1c7-ea2032bebef3)
+<img width="2203" height="1289" alt="IMG_4405" src="https://github.com/user-attachments/assets/708d8b18-0b02-462c-8459-4a9c69175ce9" />
+
 
 
 ★ ☆ ★
