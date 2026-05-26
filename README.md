@@ -1,7 +1,6 @@
 <img width="689" height="559" alt="Untitled263_20251213192708" src="https://github.com/user-attachments/assets/e0c5f5a5-4a1a-4fa5-a44f-10a64be169d6" />
 
 
-<img width="956" height="869" alt="IMG_4491" src="https://github.com/user-attachments/assets/c98615dd-2612-490d-9fd2-094e9e29f019" />
 
 
 
