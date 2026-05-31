@@ -162,11 +162,11 @@
 [𝒉𝒆𝒓 𝒈𝒊𝒕𝒉𝒖𝒃!!](https://github.com/LOSTONES-WEEPING)
 
 
-- 𝒀𝒖𝒏𝒏𝒊𝒆. 𝑯𝑰𝑰 𝒀𝑼𝑵 𝒀𝑶𝑼'𝑹𝑬 𝑹𝑬𝑨𝑳𝑳𝒀 𝑺𝑰𝑳𝑳𝒀!! 𝒚𝒐𝒖'𝒓𝒆 𝒂𝒍𝒔𝒐 𝒂𝒏 𝒂𝒎𝒂𝒛𝒊𝒏𝒈 𝒂𝒏𝒅 𝒌𝒊𝒏𝒅 𝒑𝒆𝒓𝒔𝒐𝒏!! 𝒕𝒉𝒂𝒏𝒌 𝒚𝒐𝒖 𝒇𝒐𝒓 𝒘𝒆𝒍𝒄𝒐𝒎𝒊𝒏𝒈 𝒎𝒆 𝒊𝒏𝒕𝒐 𝒚𝒐𝒖𝒓 𝒇𝒓𝒊𝒆𝒏𝒅 𝒈𝒓𝒐𝒖𝒑 𝒂𝒏𝒅 𝒃𝒆𝒊𝒏𝒈 𝒕𝒉𝒆𝒓𝒆 𝒇𝒐𝒓 𝒎𝒆! 𝒊 𝒍𝒐𝒗𝒆 𝒚𝒐𝒖𝒖!!
-- <img width="20" height="20" alt="IMG_4609" src="https://github.com/user-attachments/assets/fc8fb44b-cf96-40fd-8079-ef2014f4e568" />
+-✧ 𝒀𝒖𝒏𝒏𝒊𝒆. 𝑯𝑰𝑰 𝒀𝑼𝑵 𝒀𝑶𝑼'𝑹𝑬 𝑹𝑬𝑨𝑳𝑳𝒀 𝑺𝑰𝑳𝑳𝒀!! 𝒚𝒐𝒖'𝒓𝒆 𝒂𝒍𝒔𝒐 𝒂𝒏 𝒂𝒎𝒂𝒛𝒊𝒏𝒈 𝒂𝒏𝒅 𝒌𝒊𝒏𝒅 𝒑𝒆𝒓𝒔𝒐𝒏!! 𝒕𝒉𝒂𝒏𝒌 𝒚𝒐𝒖 𝒇𝒐𝒓 𝒘𝒆𝒍𝒄𝒐𝒎𝒊𝒏𝒈 𝒎𝒆 𝒊𝒏𝒕𝒐 𝒚𝒐𝒖𝒓 𝒇𝒓𝒊𝒆𝒏𝒅 𝒈𝒓𝒐𝒖𝒑 𝒂𝒏𝒅 𝒃𝒆𝒊𝒏𝒈 𝒕𝒉𝒆𝒓𝒆 𝒇𝒐𝒓 𝒎𝒆! 𝒊 𝒍𝒐𝒗𝒆 𝒚𝒐𝒖𝒖!!
+<img width="20" height="20" alt="IMG_4609" src="https://github.com/user-attachments/assets/fc8fb44b-cf96-40fd-8079-ef2014f4e568" />
 
 
-- [𝒉𝒆𝒓 𝒈𝒊𝒕𝒉𝒖𝒃!](https://github.com/NEW-DARLING)
+[𝒉𝒆𝒓 𝒈𝒊𝒕𝒉𝒖𝒃!](https://github.com/NEW-DARLING)
 
 
 
