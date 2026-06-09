@@ -12,6 +12,9 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r4eu7hkv4ingk57x7aujwbcmfi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=e38564&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
+![Alt text](https://spotify-recently-played-readme.vercel.app/api?user=31r4eu7hkv4ingk57x7aujwbcmfi)
+
+
 𝑆𝑡𝑢𝑓𝑓 𝑖 𝑙𝑖𝑠𝑡𝑒𝑛 𝑡𝑜! ↑
 
 
