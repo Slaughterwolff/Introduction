@@ -154,7 +154,7 @@
 <img width="20" height="20" alt="IMG_4609" src="https://github.com/user-attachments/assets/fc8fb44b-cf96-40fd-8079-ef2014f4e568" />
 
 
-[ℎ𝑒𝑟 𝑔𝑖𝑡ℎ𝑢𝑏!](https://github.com/NEW-DARLING)
+[ℎ𝑒𝑟 𝑔𝑖𝑡ℎ𝑢𝑏!](https://github.com/angelmizu)
 
 
 
