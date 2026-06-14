@@ -262,7 +262,37 @@
 
 ---------------------------
 # 𝑇ℎ𝑖𝑛𝑘 𝑜𝑓 𝑚𝑒 𝑤ℎ𝑒𝑛 𝑦𝑜𝑢 𝑠𝑒𝑒...★
+
 𝑨𝒔𝒕𝒓𝒂𝒆𝒂٫ 𝑹𝒖𝒌𝒐٫ 𝒕𝒉𝒆 𝒔𝒕𝒂𝒓𝒔٫ 𝑫𝒐𝒄𝒕𝒐𝒓 𝑭𝒖𝒏𝒌𝒃𝒆𝒂𝒕٫ 𝑹𝒂𝒊𝒏٫ 𝑴𝒂𝒓𝒈𝒂𝒓𝒊𝒕𝒂٫ 𝑳𝒂𝒊𝒌𝒂٫ 𝒎𝒐𝒐𝒏٫ 𝒄𝒍𝒐𝒗𝒆𝒓𝒔٫ 𝑵𝒊𝒈𝒉𝒕𝒄𝒐𝒓𝒅 𝒂𝒕 25٫ 𝑴𝒆𝒊𝒌𝒂 𝑯𝒊𝒎𝒆٫ 𝑻𝒓𝒐𝒐𝒑𝒔٫ 𝒈𝒖𝒎𝒊٫ 𝒇𝒍𝒂𝒏𝒅𝒓𝒆 𝒔𝒄𝒂𝒓𝒍𝒆𝒕 𝒂𝒏𝒅 𝑺𝒂𝒔𝒂𝒌𝒖𝒓𝒆.
+
+---------------------------
+# 𝑆𝑘𝑖𝑛𝑠 𝑦𝑜𝑢'𝑙𝑙 𝑢𝑠𝑢𝑎𝑙𝑙𝑦 𝑠𝑒𝑒 𝑚𝑒 𝑖𝑛 
+
+-𝑃𝐿𝐸𝐴𝑆𝐸 𝐷𝑂 𝑀𝑂𝑇 𝐶𝑂𝑃𝑌 𝐴𝑁𝑌 𝑂𝐹 𝑀𝑌 𝑆𝐾𝐼𝑁𝑆 𝐻𝐸𝑅𝐸.-
+
+-𝑠𝑜𝑚𝑒𝑡𝑖𝑚𝑒𝑠 𝑠𝑘𝑖𝑛 𝑛𝑎𝑚𝑒𝑠 𝑐ℎ𝑎𝑛𝑔𝑒.
+
+" 💊.ドクター=ファンクビート. ɪᴡᴇᴄ .ᴡ2ɪ " ↓
+<img width="498" height="567" alt="IMG_5347" src="https://github.com/user-attachments/assets/60827bab-c350-4da3-a2d8-0d149aa97b30" />
+★
+
+" Lil puppy . AKITO . style test " ↓
+
+<img width="425" height="561" alt="IMG_5348" src="https://github.com/user-attachments/assets/35b90afa-bc0d-4ad4-b683-6bacc2086fc6" />
+★ 
+
+" Hazy moon jumpstyle . oc " ↓
+<img width="476" height="487" alt="IMG_5349" src="https://github.com/user-attachments/assets/1b803f98-bf76-4e83-8990-2998e94b3d9c" />
+★
+
+" 🎁'd by rosalia!! <33 TYSMM " ↓
+
+<img width="486" height="546" alt="IMG_5350" src="https://github.com/user-attachments/assets/26bd0cc2-c8de-4cdb-8493-8e4015ddc0bd" />
+★
+
+" -✧Go troops go!! . oc, w2i " ↓
+<img width="447" height="569" alt="IMG_5351" src="https://github.com/user-attachments/assets/2a9189e8-9519-4545-9c1d-297e4cdfd66b" />
+
 
 
 🍥˖⸂ ‎⟡ ˖ 𓈒꙳🐰𓂃𓈒𓏸
